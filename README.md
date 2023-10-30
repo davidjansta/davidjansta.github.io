@@ -1,5 +1,6 @@
-*"yeah"*
-I feel like you can use this word at any time with anyone.
+# **Yeah**
+
+### I feel like you can use this word at any time with anyone.
 
 If I could pick just one word I would have to use for the rest of my life, it would be "yeah."
 
