@@ -13,3 +13,4 @@ If someone’s talking to you, and you’ve gotten distracted, just say “yeah.
 Or even if you understand the other person but can't come up with a clever response, this word is still a lifesaver. There are times when I’m nervous about speaking up. To avoid showing my nervousness, using "yeah" as a brief response is a handy way to handle any situation.
 
 Basically, I wanted to say that this word is the go-to word for almost anything. Think of it like a basic attack in a video game - something you can use anytime without overthinking it.
+![shark with human legs microsoft windows screen](https://github.com/davidjansta/yeah/assets/149413621/7eeb8a91-698f-4c3d-8aa7-c15bd5f152fe)
