@@ -1,8 +1,8 @@
 **“Yeah”**
 
-Imagine you were cursed, and this curse would prevent you from using any word other than the one you choose. Which word would you pick?
+Picture this: You're under a curse, and it stops you from saying any word except ONE. What word would you choose?
 
-If I had to choose just one word to use forever, it would definitely be "yeah." Why? I feel like you can use this word at any time.
+If I had to choose just one word to use forever, it would definitely be "YEAH". Why? I feel like you can use this word at any time.
 
 Sometimes, it's a cooler way to say "yes." For example, when someone asks you a question, "yeah" is the way to go. And if you need to say "no" or something else, I can’t help you.
 
