@@ -1,8 +1,13 @@
 **“Yeah”**
 
-If I had to choose just one word to use forever, it would definitely be "yeah." I feel like you can use this word at any time.
+Imagine you were cursed, and this curse would prevent you from using any word other than the one you choose. Which word would you pick?
 
-Sometimes, it's a cooler way to say "yes." For example, when someone asks you a question, "yeah" is the way to go. And if you need to say "no" or something else, you’re fu**
+If I had to choose just one word to use forever, it would definitely be "yeah." Why? I feel like you can use this word at any time.
+
+Sometimes, it's a cooler way to say "yes." For example, when someone asks you a question, "yeah" is the way to go. And if you need to say "no" or something else, I can’t help you.
+
+(And I also wanna make something clear. THIS ESSAY IS NOT SPONSORED BY THE WORD "YEAH". I simply liked this word and wanted to support it.)
+
 Imagine you're having a chat, and you want the other person to know you're paying attention. "Yeah" does the job perfectly. It’s like a little handshake in conversation. You don’t always need some fancy words or long sentences to get your point across. There are moments when the word "yeah" is all you need. 
 
 Let's say someone is talking to you, and your mind wanders for a moment. And you start thinking about something else. Just say “yeah”. They won't notice that you weren't paying attention. Saying "yeah" a few times can give you a bit of time to figure out what they're talking about.
